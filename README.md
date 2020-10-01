@@ -38,6 +38,9 @@ Nessa página tem tudo que importa. Sendo bem sincero, tem tudo do básico da me
 
 Bom, é isso. Podemos tirar proveito de ambos as teorias. Uma não ofusca a outra. Na verdade, quem é próspero no mercado financeiro sabe as duas coisas.
 
+Vários livros sobre Investimentos, Disciplina Financeira, Empreendedorismo etc...
+https://drive.google.com/drive/folders/17RDk4TbSF7gfatw_wQkF91KXKaPQxVZa?usp=sharing&fbclid=IwAR3jmilgRVH5GGnsoDZsRuarDPvpcU-rUK4B2jtLQYhUhUbhgS5ur-KYcUg
+
 ## Parte prática
 
 - Abrir uma conta em uma corretora. Indico a Clear por ser taxa zero, mas vi que outras zeraram a taxa atualmente. Então, checa se já tem conta em alguma com taxa zero.
