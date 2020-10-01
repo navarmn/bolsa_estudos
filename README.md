@@ -25,7 +25,7 @@ Livro: O jeito Warren Buffet de Investir. Eu tenho esse livro so nao to achando 
 - [Gleison Lima  (esse cara aqui é cearense, muito bom! hahahaha)](https://www.youtube.com/channel/UCFGT9uSYfUzTNOSejq-OBXg)
 
 
-### Site com conteuido de uma forma mais prática: https://domb3.com.br/aprendizado/
+### Site com conteúdo de uma forma mais prática: https://domb3.com.br/aprendizado/
 
 ### Curso de análise fundamentalista em video aula: vou te passar o link de um curso que fiz, me cobra.
 
